@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @SirRezi
-- 📫 Discord: xrezix
+- 📫 Discord: 00sirrezi00
 
